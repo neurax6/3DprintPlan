@@ -1,0 +1,1 @@
+Sd Kfz. 173 Jagdpanther by DeltaXF on Thingiverse: https://www.thingiverse.com/thing:6371293

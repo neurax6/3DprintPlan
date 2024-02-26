@@ -1,0 +1,1 @@
+Arcadia (Atlantis) Albator 84 - SSX Waga seishun no Arukadia - Mugen kidō SSX - Captain Harlock  by Kenseiden on Thingiverse: https://www.thingiverse.com/thing:1858108
